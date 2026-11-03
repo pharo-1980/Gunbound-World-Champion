@@ -207,4 +207,4 @@ GunBound World Champion is offered as a full free version, with all features and
 Get ready to strategize and battle in GunBound World Champion! Download your official free version today and join the adventure!
 
 ---
-**Last updated:** 2026-11-03 07:41:36 UTC
+**Last updated:** 2026-11-03 15:57:15 UTC
